@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Hussi99
+- 👀 I’m interested in programming in python, and playing fps competetive computer games.
+- 🌱 I’m currently learning python as beginner i think.
+- 💞️ I’m looking to collaborate on some easy project which could help me and skill my self in programming
+- 📫 How to reach me ... damian.husar999@gmail.com
+- If somebody could give me some easy project to skill my self it will be the best. Thans!
